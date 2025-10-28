@@ -83,3 +83,4 @@ Khaoula Jeraf
 💼 Power BI Developer | Data Analyst | Sports Data Enthusiast
 📍 Paris, France
 🔗 https://www.linkedin.com/in/khaoula-jeraf-5a7bb81ab/
+
